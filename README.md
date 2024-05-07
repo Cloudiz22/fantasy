@@ -1,0 +1,2 @@
+# fantasy
+my daily
